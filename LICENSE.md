@@ -1,4 +1,4 @@
-#  
+#  shrink for brainrots Scripts custom is the best shrink for brainrots Script, featuring one-hit kill and unlimited stamina. Safe and powerful for all
 
 
 
